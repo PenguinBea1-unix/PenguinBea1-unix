@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PenguinBea1-unix
+- 👀 I’m interested in FNF Modding
+- 🌱 I’m currently learning Coding
+- 📫 How to reach me email: valorantforlife06@gmail.com
+- 😄 Pronouns: Male
